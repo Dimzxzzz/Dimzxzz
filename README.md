@@ -1,2 +1,0 @@
-# Dimzxzz
-SC by dimzxzz
